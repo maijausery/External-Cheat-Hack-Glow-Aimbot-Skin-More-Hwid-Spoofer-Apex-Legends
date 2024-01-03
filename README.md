@@ -75,8 +75,6 @@ Tailor your gaming experience to perfection with our optimization software. From
 https://github.com/maijausery/External-Cheat-Hack-Glow-Aimbot-Skin-More-Hwid-Spoofer-Apex-Legends/assets/154898362/c139decf-3096-4ae5-8a2d-1bdaee3b5367
 
 
-https://github.com/rlwinterrow/software-cs2/assets/155299028/3902a875-f8fc-4770-af96-216761e50010
-
 # Important Information
 [![Alt текст](https://s3.timeweb.com/1f7344ba-1965520e-2817-4cbe-af09-45fc695f40be/buy.png)](https://t.me/go0d_games)
 
